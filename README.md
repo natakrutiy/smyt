@@ -15,3 +15,4 @@ Work conditions:
 2. Hourly rate
 3. Free schedule
 4. Work on large web-projects and corporate projects.
+If you are interested in, drop us an email hr@smyt.ru
